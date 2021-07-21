@@ -1,0 +1,1 @@
+Hello everyone,My name is Gogul Raja.I live in Kanyakumari,Tamil Nadu.I belong to a nuclear family.I completed my graduation in B.E Electronics and Communication Engineering from Agni College of Technology, Chennai.My short term goal is to gain knowledge in web development and to get a job in a company as web developer.My hobbies are stargazing and photography.
